@@ -1,0 +1,1 @@
+one segment of [[Nova Aurora - City]] that is protected by [[Ignis Ambula]]'s crew. 

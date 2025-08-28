@@ -1,0 +1,1 @@
+"Dictator" of [[Nova Aurora - City]]

@@ -1,0 +1,1 @@
+home of [[Xander]], his wife, and his daughter who decided to move away from [[Nova Aurora - City]] for a hopeful better life. 
