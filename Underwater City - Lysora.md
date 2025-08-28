@@ -1,0 +1,1 @@
+Surface folk call it [[The Glass Abyss]] because of its deceptive calm waters, the vanishings of ships, and the eerie lights below that make it seem like a silent, bottomless graveyard of glass. In reality, they’re only brushing against the protective veil of Lysora, a thriving, radiant city hidden just out of reach.

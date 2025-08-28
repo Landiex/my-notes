@@ -1,0 +1,3 @@
+This is a thriving sea port city that is a major source of goods as it sits on a large river that cuts deep into the mainland allowing for goods to be shipped by boat to where they end up about 1-3 days ride to the Capital City of [[Vitreus]]
+
+Holt has a bit of a reputation as a place where rough types find themselves. Gambling, thievery, and fights are common place given the rowdy crowd of sailors and dock workers. 
