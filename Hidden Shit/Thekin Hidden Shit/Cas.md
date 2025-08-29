@@ -1,0 +1,1 @@
+Secretly he is the Simulacrum for [[Vaelith - illusion, deception, trickery]] and is how the god directly influences the mortal world. 
