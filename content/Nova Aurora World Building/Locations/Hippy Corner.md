@@ -1,1 +1,1 @@
-one segment of [[Nova Aurora - City]] that is protected by [[Ignis Ambula]]'s crew. 
+one segment of [[Terminus Aurora]] that is protected by [[Ignis Ambula]]'s crew. 

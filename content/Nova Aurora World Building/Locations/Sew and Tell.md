@@ -1,1 +1,1 @@
-Clothing store in [[Nova Aurora - City]] specifically located in [[Hippy Corner]]
+Clothing store in [[Terminus Aurora]] specifically located in [[Hippy Corner]]

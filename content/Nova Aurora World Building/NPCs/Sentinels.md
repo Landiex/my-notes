@@ -1,1 +1,1 @@
-robot sentries that are there to assist law enforcement in [[Nova Aurora - City]], supposedly run by [[The Shadow]]
+robot sentries that are there to assist law enforcement in [[Terminus Aurora]], supposedly run by [[The Shadow]]
