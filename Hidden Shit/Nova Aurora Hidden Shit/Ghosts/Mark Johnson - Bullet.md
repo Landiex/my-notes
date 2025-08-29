@@ -1,2 +1,4 @@
-Soldier for [[Michael Covington]] 
+Soldier for [[The Shadow]] 
 Team mate of [[Zachary Hill - Hawkeye]], [[Gabrielle Cohen - Ghost]], [[Justin Stewart - Preacher]], [[Jack Daniels - Chaos]]
+
+![[Bullet's Armor.png]]

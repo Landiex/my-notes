@@ -1,3 +1,3 @@
 Central location of [[Nova Aurora - City]]
-home of [[Michael Covington]]
+home of [[The Shadow]]
 Work Place of [[Katelyn]]
